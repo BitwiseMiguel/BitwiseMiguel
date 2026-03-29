@@ -126,7 +126,7 @@ Projects coming soon:
 ## 📫 Contact
 
 - [LinkedIn](https://www.linkedin.com/in/migueloliveira89)
-- [Email](mailto:miguel.mathexp@gmail.com)
+- [Email](mailto:oliveira.mig.91@gmail.com)
 - [GitHub](https://github.com/BitwiseMiguel)
 - [Discord](https://discord.gg/N6PmG73qr9)
 - [Location: Guimarães, Portugal](https://www.google.com/maps/place/Guimarães,+Portugal)
